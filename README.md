@@ -1,6 +1,6 @@
 https://arab.org/click-to-help/palestine/
 
-<img width="3200" height="3200" alt="Untitled297" src="https://github.com/user-attachments/assets/3fe9a4d2-6fdc-4229-b593-71e0d32c309c" />
+<img width="1424" height="1068" alt="image" src="https://github.com/user-attachments/assets/56be7ebd-0651-4459-ba6f-38547cda584a" />
 
 
 
